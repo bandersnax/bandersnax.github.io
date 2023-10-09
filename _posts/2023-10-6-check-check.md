@@ -16,8 +16,8 @@ I've always had an interest in open source software, but there's 3 main things t
 
 1. A desire to be more informed about how my use of hardware affects the environment.
 2. Becoming increasingly aware of how much & how many companies make a profit off of my information in exchange for using their proprietary services.
-3. I just enjoy gadgets & tinkering!
+3. I just enjoy gadgets, tinkering, and understanding how things work.
 
-I'll share these out with onto my social media pages so anyone interested in reading them can - not expecting many will but still excited to share what I know with the people I enjoy being around.
+I'll share these out with onto my social media pages so anyone interested in reading them can - not expecting many will but still excited to share what I know with people I care about.
 
 See y'all around
